@@ -1,0 +1,1 @@
+Idea: https://tjournal.ru/c/19879-polzovatelei-seti-ozadachil-pazzl-dlya-proverki-na-stepen-opyaneniya
